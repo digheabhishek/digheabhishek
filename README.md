@@ -20,7 +20,7 @@
 
   
 
-- ⚡ Fun fact **Autophile**
+- ⚡ **Autophile**
 
   
 
